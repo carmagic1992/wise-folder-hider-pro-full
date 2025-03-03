@@ -1,0 +1,1 @@
+# wise-folder-hider-pro-full
